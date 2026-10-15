@@ -1,0 +1,14 @@
+[book]
+authors = ["Filósofo Errante"]
+language = "en"
+multilingual = false
+src = "src"
+title = "Xenophon: The Memorabilia"
+
+[build]
+build-dir = "book"
+create-missing = false
+
+[output.html]
+git-repository-url = "https://github.com/filosofia-errante/xenophon-memorabilia"
+edit-url-template = "https://github.com/filosofia-errante/xenophon-memorabilia/edit/main/{path}"
