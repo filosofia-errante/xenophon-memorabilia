@@ -1,0 +1,897 @@
+# The Memorabilia - Book IV
+
+## I
+
+Such was Socrates; so helpful under all circumstances and in every way that no observer, gifted with ordinary sensibility, could fail to appreciate the fact, that to be with Socrates, and to spend long time in his society (no matter where or what the circumstances), was indeed a priceless gain. Even the recollection of him, when he was no longer present, was felt as no small benefit by those who had grown accustomed to be with him, and who accepted him. Nor indeed was he less helpful to his acquaintance in his lighter than in his graver moods.
+
+Let us take as an example that saying of his, so often on his lips: "I am in love with so and so"; and all the while it was obvious the going-forth of his soul was not towards excellence of body in the bloom of beauty, but rather towards faculties of the soul unfolding in virtue. And these "good natures" he detected by certain tokens: a readiness to learn that to which the attention was directed; a power of retaining in the memory the lessons learnt; and a passionate predilection for those studies in particular which serve to good administration of a house or of a state, and in general to the proper handling of man and human affairs. Such beings, he maintained, needed only to be educated to become not only happy themselves and happy administrators of their private households, but to be capable of rendering other human beings as states or individuals happy also.
+
+He had indeed a different way of dealing with different kinds of people. Those who thought they had good natural ability and despised learning he instructed that the most highly-gifted nature stands most in need of training and education; and he would point out how in the case of horses it is just the spirited and fiery thoroughbred which, if properly broken in as a colt, will develop into a serviceable and superb animal, but if left unbroken will turn out utterly intractable and good for nothing. Or take the case of dogs: a puppy exhibiting that zest for toil and eagerness to attack wild creatures which are the marks of high breeding, will, if well brought up, prove excellent for the chase or for any other useful purpose; but neglect his education and he will turn out a stupid, crazy brute, incapable of obeying the simplest command. It is just the same with human beings; here also the youth of best natural endowments—that is to say, possessing the most robust qualities of spirit and a fixed determination to carry out whatever he has laid his hand to—will, if trained and taught what it is right to do, prove a superlatively good and useful man. He achieves, in fact, what is best upon the grandest scale. But leave him in boorish ignorance untrained, and he will prove not only very bad but very mischievous, and for this reason, that lacking the knowledge to discern what is right to do, he will frequently lay his hand to villainous practices; whilst the very magnificence and vehemence of his character render it impossible either to rein him in or to turn him aside from his evil courses. Hence in his case also his achievements are on the grandest scale but of the worst.
+
+Or to take the type of person so eaten up with the pride of riches that he conceives himself dispensed from any further need of education—since it is "money makes the man," and his wealth will amply suffice him to carry out his desires and to win honours from admiring humanity. Socrates would bring such people to their senses by pointing out the folly of supposing that without instruction it was possible to draw the line of demarcation between what is gainful and what is hurtful in conduct; and the further folly of supposing that, apart from such discrimination, a man could help himself by means of wealth alone to whatever he liked or find the path of expediency plain before him; and was it not the veriest simplicity to suppose that, without the power of labouring profitably, a man can either be doing well or be in any sort of way sufficiently equipped for the battle of life? and again, the veriest simplicity to suppose that by mere wealth without true knowledge it was possible either to purchase a reputation for some excellence, or without such reputation to gain distinction and celebrity?
+
+## II
+
+Or to come to a third kind—the class of people who are persuaded that they have received the best education, and are proud of their wisdom: his manner of dealing with these I will now describe.
+
+Euthydemus "the beautiful" had (Socrates was given to understand) collected a large library, consisting of the most celebrated poets and philosophers, by help of which he already believed himself to be more than a match for his fellows in wisdom, and indeed might presently expect to out-top them all in capacity of speech and action. At first, as Socrates noted, the young man by reason of his youth had not as yet set foot in the agora, but if he had anything to transact, his habit was to seat himself in a saddler's shop hard by. Accordingly to this same saddler's shop Socrates betook himself with some of those who were with him. And first the question was started by some one: "Was it through consorting with the wise, or by his own unaided talent, that Themistocles came so to surpass his fellow-citizens that when the services of a capable man were needed the eyes of the whole community instinctively turned to him?" Socrates, with a view to stirring Euthydemus, answered: There was certainly an ingenuous simplicity in the belief that superiority in arts of comparatively little worth could only be attained by aid of qualified teachers, but that the leadership of the state, the most important concern of all, was destined to drop into the lap of anybody, no matter whom, like an accidental windfall.
+
+On a subsequent occasion, Euthydemus being present, though, as was plain to see, somewhat disposed to withdraw from the friendly concourse, as if he would choose anything rather than appear to admire Socrates on the score of wisdom, the latter made the following remarks.
+
+Soc. It is clear from his customary pursuits, is it not, sirs, that when our friend Euthydemus here is of full age, and the state propounds some question for solution, he will not abstain from offering the benefit of his advice? One can imagine the pretty exordium to his parliamentary speeches which, in his anxiety not to be thought to have learnt anything from anybody, he has ready for the occasion. Clearly at the outset he will deliver himself thus: "Men of Athens, I have never at any time learnt anything from anybody; nor, if I have ever heard of any one as being an able statesman, well versed in speech and capable of action, have I sought to come across him individually. I have not so much as been at pains to provide myself with a teacher from amongst those who have knowledge; on the contrary, I have persistently avoided, I will not say learning from others, but the very faintest suspicion of so doing. However, anything that occurs to me by the light of nature I shall be glad to place at your disposal."... How appropriate would such a preface sound on the lips of any one seeking, say, the office of state physician, would it not? How advantageously he might begin an address on this wise: "Men of Athens, I have never learnt the art of healing by help of anybody, nor have I sought to provide myself with any teacher among medical men. Indeed, to put it briefly, I have been ever on my guard not only against learning anything from the profession, but against the very notion of having studied medicine at all. If, however, you will be so good as to confer on me this post, I promise I will do my best to acquire skill by experimenting on your persons." Every one present laughed at the exordium (and there the matter dropped).
+
+Presently, when it became apparent that Euthydemus had got so far that he was disposed to pay attention to what was said, though he was still at pains not to utter a sound himself, as if he hoped by silence to attach to himself some reputation for sagacity, Socrates, wishing to cure him of that defect, proceeded.
+
+Soc. Is it not surprising that people anxious to learn to play the harp or the flute, or to ride, or to become proficient in any like accomplishment, are not content to work unremittingly in private by themselves at whatever it is in which they desire to excel, but they must sit at the feet of the best-esteemed teachers, doing all things and enduring all things for the sake of following the judgment of those teachers in everything, as though they themselves could not otherwise become famous; whereas, among those who aspire to become eminent politically as orators and statesmen, there are some who cannot see why they should not be able to do all that politics demand, at a moment's notice, by inspiration as it were, without any preliminary pains or preparations whatever? And yet it would appear that the latter concerns must be more difficult of achievement than the former, in proportion as there are more competitors in the field but fewer who reach the goal of their ambition, which is as much as to say that a more sustained effort of attention is needed on the part of those who embark upon the sea of politics than is elsewhere called for.
+
+Such were the topics on which Socrates was wont in the early days of their association to dilate in the hearing of Euthydemus; but when the philosopher perceived that the youth not only could tolerate the turns of the discussion more readily but was now become a somewhat eager listener, he went to the saddler's shop alone, and when Euthydemus was seated by his side the following conversation took place.
+
+Soc. Pray tell me, Euthydemus, is it really true what people tell me, that you have made a large collection of the writings of "the wise," as they are called?
+
+Euthydemus answered: Quite true, Socrates, and I mean to go on collecting until I possess all the books I can possibly lay hold of.
+
+Soc. By Hera! I admire you for wishing to possess treasures of wisdom rather than of gold and silver, which shows that you do not believe gold and silver to be the means of making men better, but that the thoughts of the wise alone enrich with virtue their possessions.
+
+And Euthydemus was glad when he heard that saying, for, thought he to himself, "In the eyes of Socrates I am on the high road to the acquisition of wisdom." But the latter, perceiving him to be pleased with the praise, continued.
+
+Soc. And what is it in which you desire to excel, Euthydemus, that you collect books?
+
+And when Euthydemus was silent, considering what answer he should make, Socrates added: Possibly you want to be a great doctor? Why, the prescriptions of the Pharmacopoeia would form a pretty large library by themselves.
+
+No, indeed, not I! (answered Euthydemus).
+
+Soc. Then do you wish to be an architect? That too implies a man of well-stored wit and judgment.
+
+I have no such ambition (he replied).
+
+Soc. Well, do you wish to be a mathematician, like Theodorus?
+
+Euth. No, nor yet a mathematician.
+
+Soc. Then do you wish to be an astronomer? or (as the youth signified dissent) possibly a rhapsodist? (he asked), for I am told you have the entire works of Homer in your possession.
+
+Nay, God forbid! not I! (ejaculated the youth). Rhapsodists have a very exact acquaintance with epic poetry, I know, of course; but they are empty-pated creatures enough themselves.
+
+At last Socrates said: Can it be, Euthydemus, that you are an aspirant to that excellence through which men become statesmen and administrators fit to rule and apt to benefit the rest of the world and themselves?
+
+Yes (replied he), that is the excellence I desire—beyond measure.
+
+Upon my word (said Socrates), then you have indeed selected as the object of your ambition the noblest of virtues and the greatest of the arts, for this is the property of kings, and is entitled "royal"; but (he continued) have you considered whether it is possible to excel in these matters without being just and upright?
+
+Euth. Certainly I have, and I say that without justice and uprightness it is impossible to be a good citizen.
+
+No doubt (replied Socrates) you have accomplished that initial step?
+
+Euth. Well, Socrates, I think I could hold my own against all comers as an upright man.
+
+And have upright men (continued Socrates) their distinctive and appropriate works like those of carpenters or shoe-makers?
+
+Euth. To be sure they have.
+
+Soc. And just as the carpenter is able to exhibit his works and products, the righteous man should be able to expound and set forth his, should he not?
+
+I see (replied Euthydemus) you are afraid I cannot expound the works of righteousness! Why, bless me! of course I can, and the works of unrighteousness into the bargain, since there are not a few of that sort within reach of eye and ear every day.
+
+Shall we then (proceeded Socrates) write the letter R on this side, and on that side the letter W; and then anything that appears to us to be the product of righteousness we will place to the R account, and anything which appears to be the product of wrong-doing and iniquity to the account of W?
+
+By all means do so (he answered), if you think that it assists matters.
+
+Accordingly Socrates drew the letters, as he had suggested, and continued.
+
+Soc. Lying exists among men, does it not?
+
+Euth. Certainly.
+
+To which side of the account then shall we place it? (he asked).
+
+Euth. Clearly on the side of wrong and injustice.
+
+Soc. Deceit too is not uncommon?
+
+Euth. By no means.
+
+Soc. To which side shall we place deceit?
+
+Euth. Deceit clearly on the side of wrong.
+
+Soc. Well, and chicanery or mischief of any sort?
+
+Euth. That too.
+
+Soc. And the enslavement of free-born men?
+
+Euth. That too.
+
+Soc. And we cannot allow any of these to lie on the R side of the account, to the side of right and justice, can we, Euthydemus?
+
+It would be monstrous (he replied).
+
+Soc. Very good. But supposing a man to be elected general, and he succeeds in enslaving an unjust, wicked, and hostile state, are we to say that he is doing wrong?
+
+Euth. By no means.
+
+Soc. Shall we not admit that he is doing what is right?
+
+Euth. Certainly.
+
+Soc. Again, suppose he deceives the foe while at war with them?
+
+Euth. That would be all fair and right also.
+
+Soc. Or steals and pillages their property? would he not be doing what is right?
+
+Euth. Certainly; when you began I thought you were limiting the question to the case of friends.
+
+Soc. So then everything which we set down on the side of Wrong will now have to be placed to the credit of Right?
+
+Euth. Apparently.
+
+Soc. Very well then, let us so place them; and please, let us make a new definition—that while it is right to do such things to a foe, it is wrong to do them to a friend, but in dealing with the latter it behoves us to be as straightforward as possible.
+
+I quite assent (replied Euthydemus).
+
+So far so good (remarked Socrates); but if a general, seeing his troops demoralised, were to invent a tale to the effect that reinforcements were coming, and by means of this false statement should revive the courage of his men, to which of the two accounts shall we place that act of fraud?
+
+On the side of right, to my notion (he replied).
+
+Soc. Or again, if a man chanced to have a son ill and in need of medicine, which the child refused to take, and supposing the father by an act of deceit to administer it under the guise of something nice to eat, and by service of that lie to restore the boy to health, to which account shall we set down this fraud?
+
+Euth. In my judgment it too should be placed to the same account.
+
+Soc. Well, supposing you have a friend in deplorably low spirits, and you are afraid he will make away with himself—accordingly you rob him of his knife or other such instrument: to which side ought we to set the theft?
+
+Euth. That too must surely be placed to the score of right behaviour.
+
+Soc. I understand you to say that a straightforward course is not in every case to be pursued even in dealing with friends?
+
+Heaven forbid! (the youth exclaimed). If you will allow me, I rescind my former statement.
+
+Soc. Allow you! Of course you may—anything rather than make a false entry on our lists.... But there is just another point we ought not to leave uninvestigated. Let us take the case of deceiving a friend to his detriment: which is the more wrongful—to do so voluntarily or unintentionally?
+
+Euth. Really, Socrates, I have ceased to believe in my own answers, for all my former admissions and conceptions seem to me other than I first supposed them. Still, if I may hazard one more opinion, the intentional deceiver, I should say, is worse than the involuntary.
+
+Soc. And is it your opinion that there is a lore and science of Right and Justice just as there is of letters and grammar?
+
+Euth. That is my opinion.
+
+Soc. And which should you say was more a man of letters—he who intentionally misspells or misreads, or he who does so unconsciously?
+
+Euth. He who does so intentionally, I should say, because he can spell or read correctly whenever he chooses.
+
+Soc. Then the voluntary misspeller may be a lettered person, but the involuntary offender is an illiterate?
+
+Euth. True, he must be. I do not see how to escape from that conclusion.
+
+Soc. And which of the two knows what is right—he who intentionally lies and deceives, or he who lies and deceives unconsciously?
+
+Euth. The intentional and conscious liar clearly.
+
+Soc. Well then, your statement is this: on the one hand, the man who has the knowledge of letters is more lettered than he who has no such knowledge?
+
+Euth. Yes.
+
+Soc. And, on the other, he who has the knowledge of what is right is more righteous than he who lacks that knowledge?
+
+Euth. I suppose it is, but for the life of me I cannot make head or tail of my own admission.
+
+Soc. Well (look at it like this). Suppose a man to be anxious to speak the truth, but he is never able to hold the same language about a thing for two minutes together. First he says: "The road is towards the east," and then he says, "No, it's towards the west"; or, running up a column of figures, now he makes the product this, and again he makes it that, now more, now less—what do you think of such a man?
+
+Euth. Heaven help us! clearly he does not know what he thought he knew.
+
+Soc. And you know the appellation given to certain people—"slavish," or, "little better than a slave?"
+
+Euth. I do.
+
+Soc. Is it a term suggestive of the wisdom or the ignorance of those to whom it is applied?
+
+Euth. Clearly of their ignorance.
+
+Soc. Ignorance, for instance, of smithying?
+
+Euth. No, certainly not.
+
+Soc. Then possibly ignorance of carpentering?
+
+Euth. No, nor yet ignorance of carpentering.
+
+Soc. Well, ignorance of shoemaking?
+
+Euth. No, nor ignorance of any of these: rather the reverse, for the majority of those who do know just these matters are "little better than slaves."
+
+Soc. You mean it is a title particularly to those who are ignorant of the beautiful, the good, the just?
+
+It is, in my opinion (he replied).
+
+Soc. Then we must in every way strain every nerve to avoid the imputation of being slaves?
+
+Euth. Nay, Socrates, by all that is holy, I did flatter myself that at any rate I was a student of philosophy, and on the right road to be taught everything essential to one who would fain make beauty and goodness his pursuit. So that now you may well imagine my despair when, for all my pains expended, I cannot even answer the questions put to me about what most of all a man should know; and there is no path of progress open to me, no avenue of improvement left.
+
+Thereupon Socrates: Tell me, Euthydemus, have you ever been to Delphi?
+
+Yes, certainly; twice (said he).
+
+Soc. And did you notice an inscription somewhere on the temple: GNOMI SEAUTON—KNOW THYSELF?
+
+Euth. I did.
+
+Soc. Did you, possibly, pay no regard to the inscription? or did you give it heed and try to discover who and what you were?
+
+I can safely say I did not (he answered). That much I made quite sure I knew, at any rate; since if I did not know even myself, what in the world did I know?
+
+Soc. Can a man be said, do you think, to know himself who knows his own name and nothing more? or must he not rather set to work precisely like the would-be purchaser of a horse, who certainly does not think that he has got the knowledge he requires until he has discovered whether the beast is tractable or stubborn, strong or weak, quick or slow, and how it stands with the other points, serviceable or the reverse, in reference to the use and purpose of a horse? So, I say, must a man in like manner interrogate his own nature in reference to a man's requirements, and learn to know his own capacities, must he not?
+
+Euth. Yes, so it strikes me: he who knows not his own ability knows not himself.
+
+Soc. And this too is plain, is it not: that through self-knowledge men meet with countless blessings, and through ignorance of themselves with many evils? Because, the man who knows himself knows what is advantageous to himself; he discerns the limits of his powers, and by doing what he knows, he provides himself with what he needs and so does well; or, conversely, by holding aloof from what he knows not, he avoids mistakes and thereby mishaps. And having now a test to gauge other human beings he uses their need as a stepping-stone to provide himself with good and to avoid evil. Whereas he who does not know himself, but is mistaken as to his own capacity, is in like predicament to the rest of mankind and all human matters else; he neither knows what he wants, nor what he is doing, nor the people whom he deals with; and being all abroad in these respects, he misses what is good and becomes involved in what is ill.
+
+Again, he that knows what he is doing through the success of his performance attains to fame and honour; his peers and co-mates are glad to make use of him, whilst his less successful neighbours, failing in their affairs, are anxious to secure his advice, his guidance, his protection; they place their hopes of happiness in him, and for all these causes single him out as the chief object of their affection. He, on the contrary, who knows not what he does, who chooses amiss and fails in what he puts his hands to, not only incurs loss and suffers chastisement through his blunders, but step by step loses reputation and becomes a laughing-stock, and in the end is doomed to a life of dishonour and contempt.
+
+What is true of individuals is true also of communities. That state which in ignorance of its power goes to war with a stronger than itself ends by being uprooted or else reduced to slavery.
+
+Thereupon Euthydemus: Be assured I fully concur in your opinion; the precept KNOW THYSELF cannot be too highly valued; but what is the application? What the starting-point of self-examination? I look to you for an explanation, if you would kindly give one.
+
+Well (replied Socrates), I presume you know quite well the distinction between good and bad things: your knowledge may be relied upon so far?
+
+Why, yes, to be sure (replied the youth); for without that much discernment I should indeed be worse than any slave.
+
+Come then (said he), do you give me an explanation of the things so termed.
+
+That is fortunately not hard (replied the youth). First of all, health in itself I hold to be a good, and disease in itself an evil; and in the next place the sources of either of those aforenamed, meats and drinks, and habits of life, I regard as good or evil according as they contribute either to health or to disease.
+
+Soc. Then health and disease themselves when they prove to be sources of any good are good, but when of any evil, evil?
+
+And when (asked he), can health be a source of evil, or disease a source of good?
+
+Why, bless me! often enough (replied Socrates). In the event, for instance, of some ill-starred expedition or of some disastrous voyage or other incident of the sort, of which veritably there are enough to spare—when those who owing to their health and strength take a part in the affair are lost; whilst those who were left behind—as hors de combat, on account of ill-health of other feebleness—are saved.
+
+Euth. Yes, you are right; but you will admit that there are advantages to be got from strength and lost through weakness.
+
+Soc. Even so; but ought we to regard those things which at one moment benefit and at another moment injure us in any strict sense good rather than evil?
+
+Euth. No, certainly not, according to that line of argument. But wisdom, Socrates, you must on your side admit, is irrefragably a good; since there is nothing which or in which a wise man would not do better than a fool.
+
+Soc. What say you? Have you never heard of Daedalus, how he was seized by Minos on account of his wisdom, and forced to be his slave, and robbed of fatherland and freedom at one swoop? and how, while endeavouring to make his escape with his son, he caused the boy's death without effecting his own salvation, but was carried off among barbarians and again enslaved?
+
+Yes, I know the old story (he answered).
+
+Soc. Or have you not heard of the "woes of Palamedes," that commonest theme of song, how for his wisdom's sake Odysseus envied him and slew him?
+
+Euth. That tale also is current.
+
+Soc. And how many others, pray, do you suppose have been seized on account of their wisdom, and despatched to the great king and at his court enslaved?
+
+Well, prosperity, well-being (he exclaimed), must surely be a blessing, and that the most indisputable, Socrates?
+
+It might be so (replied the philosopher) if it chanced not to be in itself a compound of other questionable blessings.
+
+Euth. And which among the components of happiness and well-being can possibly be questionable?
+
+None (he retorted), unless of course we are to include among these components beauty, or strength, or wealth, or reputation, or anything else of that kind?
+
+Euth. By heaven! of course we are to include these, for what would happiness be without these?
+
+Soc. By heaven! yes; only then we shall be including the commonest sources of mischief which befall mankind. How many are ruined by their fair faces at the hand of admirers driven to distraction by the sight of beauty in its bloom! how many, tempted by their strength to essay deeds beyond their power, are involved in no small evils! how many, rendered effeminate by reason of their wealth, have been plotted against and destroyed! how many through fame and political power have suffered a world of woe!
+
+Well (the youth replied) if I am not even right in praising happiness, I must confess I know not for what one ought to supplicate the gods in prayer.
+
+Nay, these are matters (proceeded Socrates) which perhaps, through excessive confidence in your knowledge of them, you have failed to examine into; but since the state, which you are preparing yourself to direct, is democratically constituted, of course you know what a democracy is.
+
+Euth. I presume I do, decidedly.
+
+Soc. Well, now, is it possible to know what a popular state is without knowing who the people are?
+
+Euth. Certainly not.
+
+Soc. And whom do you consider to be the people?
+
+Euth. The poor citizens, I should say.
+
+Soc. Then you know who the poor are, of course?
+
+Euth. Of course I do.
+
+Soc. I presume you also know who the rich are?
+
+Euth. As certainly as I know who are the poor.
+
+Soc. Whom do you understand by poor and rich?
+
+Euth. By poor I mean those who have not enough to pay for their necessaries, and by rich those who have more means than sufficient for all their needs.
+
+Soc. Have you noticed that some who possess a mere pittance not only find this sufficient, but actually succeed in getting a surplus out of it; while others do not find a large fortune large enough?
+
+I have, most certainly; and I thank you for the reminder (replied Euthydemus). One has heard of crowned heads and despotic rulers being driven by want to commit misdeeds like the veriest paupers.
+
+Then, if that is how matters stand (continued Socrates), we must class these same crowned heads with the commonalty; and some possessors of scant fortunes, provided they are good economists, with the wealthy?
+
+Then Euthydemus: It is the poverty of my own wit which forces me to this admission. I bethink me it is high time to keep silence altogether; a little more, and I shall be proved to know absolutely nothing. And so he went away crestfallen, in an agony of self-contempt, persuaded that he was verily and indeed no better than a slave.
+
+Amongst those who were reduced to a like condition by Socrates, many refused to come near him again, whom he for his part looked upon as dolts and dullards. But Euthydemus had the wit to understand that, in order to become worthy of account, his best plan was to associate as much as possible with Socrates; and from that moment, save for some necessity, he never left him—in some points even imitating him in his habits and pursuits. Socrates, on his side, seeing that this was the young man's disposition, disturbed him as little as possible, but in the simplest and plainest manner initiated him into everything which he held to be needful to know or important to practise.
+
+## III
+
+It may be inferred that Socrates was in no hurry for those who were with him to discover capacities for speech and action or as inventive geniuses, without at any rate a well-laid foundation of self-control. For those who possessed such abilities without these same saving virtues would, he believed, only become worse men with greater power for mischief. His first object was to instil into those who were with him a wise spirit in their relation to the gods. That such was the tenor of his conversation in dealing with men may be seen from the narratives of others who were present on some particular occasion. I confine myself to a particular discussion with Euthydemus at which I was present.
+
+Socrates said: Tell me, Euthydemus, has it ever struck you to observe what tender pains the gods have taken to furnish man with all his needs?
+
+Euth. No indeed, I cannot say that it has ever struck me.
+
+Well (Socrates continued), you do not need to be reminded that, in the first place, we need light, and with light the gods supply us.
+
+Euth. Most true, and if we had not got it we should, as far as our own eyes could help us, be like men born blind.
+
+Soc. And then, again, seeing that we stand in need of rest and relaxation, they bestow upon us "the blessed balm of silent night."
+
+Yes (he answered), we are much beholden for that boon.
+
+Soc. Then, forasmuch as the sun in his splendour makes manifest to us the hours of the day and bathes all things in brightness, but anon night in her darkness obliterates distinctions, have they not displayed aloft the starry orbs, which inform us of the watches of the night, whereby we can accomplish many of our needs?
+
+It is so (he answered).
+
+Soc. And let us not forget that the moon herself not only makes clear to us the quarters of the night, but of the month also?
+
+Certainly (he answered).
+
+Soc. And what of this: that whereas we need nutriment, this too the heavenly powers yield us? Out of earth's bosom they cause good to spring up for our benefit; and for our benefit provide appropriate seasons to furnish us in turn not only with the many and diverse objects of need, but with the sources also of our joy and gladness?
+
+Yes (he answered eagerly), these things bear token truly to a love for man.
+
+Soc. Well, and what of another priceless gift, that of water, which conspires with earth and the seasons to give both birth and increase to all things useful to us; nay, which helps to nurture our very selves, and commingling with all that feeds us, renders it more digestible, more wholesome, and more pleasant to the taste; and mark you in proportion to the abundance of our need the superabundance of its supply. What say you concerning such a boon?
+
+Euth. In this again I see a sign of providential care.
+
+Soc. And then the fact that the same heavenly power has provided us with fire our assistant against cold, our auxiliary in darkness, our fellow-workman in every art and every instrument which for the sake of its utility mortal man may invent or furnish himself withal. What of this, since, to put it compendiously, there is nothing serviceable to the life of man worth speaking of but owes its fabrication to fire?
+
+Euth. Yes, a transcendent instance of benevolent design.
+
+Soc. Again, consider the motions of the Sun, how when he has turned him about in winter he again draws nigh to us, ripening some fruits, and causing others whose time is past to dry up; how when he has fulfilled his work he comes no closer, but turns away as if in fear to scorch us to our hurt unduly; and again, when he has reached a point where if he should prolong his retreat we should plainly be frozen to death with cold, note how he turns him about and resumes his approach, traversing that region of the heavens where he may shed his genial influence best upon us.
+
+Yes, upon my word (he answered), these occurrences bear the impress of being so ordered for the sake of man.
+
+Soc. And then, again, it being manifest that we could not endure either scorching heat or freezing cold if they came suddenly upon us, note how gradually the sun approaches, and how gradually recedes, so that we fail to notice how we come at last to either extreme.
+
+For my part (he replied), the question forces itself upon my mind, whether the gods have any other occupation save only to minister to man; and I am only hindered from saying so, because the rest of animals would seem to share these benefits along with man.
+
+Soc. Why, to be sure; and is it not plain that these animals themselves are born and bred for the sake of man? At any rate, no living creature save man derives so many of his enjoyments from sheep and goats, horses and cattle and asses, and other animals. He is more dependent, I should suppose, on these than even on plants and vegetables. At any rate, equally with these latter they serve him as means of subsistence or articles of commerce; indeed, a large portion of the human family do not use the products of the soil as food at all, but live on the milk and cheese and flesh of their flocks and herds, whilst all men everywhere tame and domesticate the more useful kinds of animals, and turn them to account as fellow-workers in war and for other purposes.
+
+Yes, I cannot but agree with what you say (he answered), when I see that animals so much stronger than man become so subservient to his hand that he can use them as he lists.
+
+Soc. And as we reflect on the infinite beauty and utility and the variety of nature, what are we to say of the fact that man has been endowed with sensibilities which correspond with this diversity, whereby we take our fill of every blessing; or, again, this implanted faculty of reasoning, which enables us to draw inferences concerning the things which we perceive, and by aid of memory to understand how each set of things may be turned to our good, and to devise countless contrivances with a view to enjoying the good and repelling the evil; or lastly, when we consider the faculty bestowed upon us of interpretative speech, by which we are enabled to instruct one another, and to participate in all the blessings fore-named: to form societies, to establish laws, and to enter upon a civilised existence what are we to think?
+
+Euth. Yes, Socrates, decidedly it would appear that the gods do manifest a great regard, nay, a tender care, towards mankind.
+
+Soc. Well, and what do you make of the fact that where we are powerless to take advantageous forethought for our future, at this stage they themselves lend us their co-operation, imparting to the inquirer through divination knowledge of events about to happen, and instructing him by what means they may best be turned to good account?
+
+Euth. Ay, and you, Socrates, they would seem to treat in a more friendly manner still than the rest of men, if, without waiting even to be inquired of by you, they show you by signs beforehand what you must, and what you must not do.
+
+Soc. Yes, and you will discover for yourself the truth of what I say, if, without waiting to behold the outward and visible forms of the gods themselves, you will be content to behold their works; and with these before you, to worship and honour the Divine authors of them. I would have you reflect that the very gods themselves suggest this teaching. Not one of these but gives us freely of his blessings; yet they do not step from behind their veil in order to grant one single boon. And pre-eminently He who orders and holds together the universe, in which are all things beautiful and good; who fashions and refashions it to never-ending use unworn, keeping it free from sickness or decay, so that swifter than thought it ministers to his will unerringly—this God is seen to perform the mightiest operations, but in the actual administration of the same abides himself invisible to mortal ken. Reflect further, this Sun above our heads, so visible to all—as we suppose—will not suffer man to regard him too narrowly, but should any essay to watch him with a shameless stare he will snatch away their power of vision. And if the gods themselves are thus unseen, so too shall you find their ministers to be hidden also; from the height of heaven above the thunderbolt is plainly hurled, and triumphs over all that it encounters, yet it is all-invisible, no eye may detect its coming or its going at the moment of its swoop. The winds also are themselves unseen, though their works are manifest, and through their approach we are aware of them. And let us not forget, the soul of man himself, which if aught else human shares in the divine—however manifestly enthroned within our bosom, is as wholly as the rest hidden from our gaze. These things you should lay to mind, and not despise the invisible ones, but learn to recognise their power, as revealed in outward things, and to know the divine influence.
+
+Nay, Socrates (replied Euthydemus), there is no danger I shall turn a deaf ear to the divine influence even a little; of that I am not afraid, but I am out of heart to think that no soul of man may ever requite the kindness of the gods with fitting gratitude.
+
+Be not out of heart because of that (he said); you know what answer the god at Delphi makes to each one who comes asking "how shall I return thanks to heaven?"—"According to the law and custom of your city"; and this, I presume, is law and custom everywhere that a man should please the gods with offerings according to the ability which is in him. How then should a man honour the gods with more beautiful or holier honour than by doing what they bid him? but he must in no wise slacken or fall short of his ability, for when a man so does, it is manifest, I presume, that at the moment he is not honouring the gods. You must then honour the gods, not with shortcoming but according to your ability; and having so done, be of good cheer and hope to receive the greatest blessings. For where else should a man of sober sense look to receive great blessings if not from those who are able to help him most, and how else should he hope to obtain them save by seeking to please his helper, and how may he hope to please his helper better than by yielding him the amplest obedience?
+
+By such words—and conduct corresponding to his words—did Socrates mould and fashion the hearts of his companions, making them at once more devout and more virtuous.
+
+## IV
+
+But indeed with respect to justice and uprightness he not only made no secret of the opinion he held, but gave practical demonstration of it, both in private by his law-abiding and helpful behaviour to all, and in public by obeying the magistrates in all that the laws enjoined, whether in the life of the city or in military service, so that he was a pattern of loyalty to the rest of the world, and on three several occasions in particular: first, when as president (Epistates) of the assembly he would not suffer the sovereign people to take an unconstitutional vote, but ventured, on the side of the laws, to resist a current of popular feeling strong enough, I think, to have daunted any other man. Again, when the Thirty tried to lay some injunction on him contrary to the laws, he refused to obey, as for instance when they forbade his conversing with the young; or again, when they ordered him and certain other citizens to arrest a man to be put to death, he stood out single-handed on the ground that the injunctions laid upon him were contrary to the laws. And lastly, when he appeared as defendant in the suit instituted by Meletus, notwithstanding that it was customary for litigants in the law courts to humour the judges in the conduct of their arguments by flattery and supplications contrary to the laws, notwithstanding also that defendants owed their acquittal by the court to the employment of such methods, he refused to do a single thing however habitual in a court of law which was not strictly legal; and though by only a slight deflection from the strict path he might easily have been acquitted by his judges, he preferred to abide by the laws and die rather than transgress them and live.
+
+These views he frequently maintained in conversation, now with one and now with another, and one particular discussion with Hippias of Elis on the topic of justice and uprightness has come to my knowledge.
+
+Hippias had just arrived at Athens after a long absence, and chanced to be present when Socrates was telling some listeners how astonishing it was that if a man wanted to get another taught to be a shoemaker or carpenter or coppersmith or horseman, he would have no doubt where to send him for the purpose: "People say," he added, "that if a man wants to get his horse or his ox taught in the right way, the world is full of instructors; but if he would learn himself, or have his son or his slave taught in the way of right, he cannot tell where to find such instruction."
+
+Hippias, catching the words, exclaimed in a bantering tone: What! still repeating the same old talk, Socrates, which I used to hear from you long ago?
+
+Yes (answered Socrates), and what is still more strange, Hippias, it is not only the same old talk but about the same old subjects. Now you, I daresay, through versatility of knowledge, never say the same thing twice over on the same subject?
+
+To be sure (he answered), my endeavour is to say something new on all occasions.
+
+What (he asked) about things which you know, as for instance in a case of spelling, if any one asks you, "How many letters in Socrates, and what is their order?" I suppose you try to run off one string of letters to-day and to-morrow another? or to a question of arithmetic, "Does twice five make ten?" your answer to-day will differ from that of yesterday?
+
+Hipp. No; on these topics, Socrates, I do as you do and repeat myself. However, to revert to justice (and uprightness), I flatter myself I can at present furnish you with some remarks which neither you nor any one else will be able to controvert.
+
+By Hera! (he exclaimed), what a blessing to have discovered! Now we shall have no more divisions of opinion on points of right and wrong; judges will vote unanimously; citizens will cease wrangling; there will be no more litigation, no more party faction, states will reconcile their differences, and wars are ended. For my part I do not know how I can tear myself away from you, until I have heard from your own lips all about the grand discovery you have made.
+
+You shall hear all in good time (Hippias answered), but not until you make a plain statement of your own belief. What is justice? We have had enough of your ridiculing all the rest of the world, questioning and cross-examining first one and then the other, but never a bit will you render an account to any one yourself or state a plain opinion upon a single topic.
+
+What, Hippias (Socrates retorted), have you not observed that I am in a chronic condition of proclaiming what I regard as just and upright?
+
+Hipp. And pray what is this theory of yours on the subject? Let us have it in words.
+
+Soc. If I fail to proclaim it in words, at any rate I do so in deed and in fact. Or do you not think that a fact is worth more as evidence than a word?
+
+Worth far more, I should say (Hippias answered), for many a man with justice and right on his lips commits injustice and wrong, but no doer of right ever was a misdoer or could possibly be.
+
+Soc. I ask then, have you ever heard or seen or otherwise perceived me bearing false witness or lodging malicious information, or stirring up strife among friends or political dissension in the city, or committing any other unjust and wrongful act?
+
+No, I cannot say that I have (he answered).
+
+Soc. And do you not regard it as right and just to abstain from wrong?
+
+Hipp. Now you are caught, Socrates, plainly trying to escape from a plain statement. When asked what you believe justice to be, you keep telling us not what the just man does, but what he does not do.
+
+Why, I thought for my part (answered Socrates) that the refusal to do wrong and injustice was a sufficient warrent in itself of righteousness and justice, but if you do not agree, see if this pleases you better: I assert that what is "lawful" is "just and righteous."
+
+Do you mean to assert (he asked) that lawful and just are synonymous terms?
+
+Soc. I do.
+
+I ask (Hippias added), for I do not perceive what you mean by lawful, nor what you mean by just.
+
+Soc. You understand what is meant by laws of a city or state?
+
+Yes (he answered).
+
+Soc. What do you take them to be?
+
+Hipp. The several enactments drawn up by the citizens or members of a state in agreement as to what things should be done or left undone.
+
+Then I presume (Socrates continued) that a member of a state who regulates his life in accordance with these enactments will be law-abiding, while the transgressor of the same will be law-less?
+
+Certainly (he answered).
+
+Soc. And I presume the law-loving citizen will do what is just and right, while the lawless man will do what is unjust and wrong?
+
+Hipp. Certainly.
+
+Soc. And I presume that he who does what is just is just, and he who does what is unjust is unjust?
+
+Hipp. Of course.
+
+Soc. It would appear, then, that the law-loving man is just, and the lawless unjust?
+
+Then Hippias: Well, but laws, Socrates, how should any one regard as a serious matter either the laws themselves, or obedience to them, which laws the very people who made them are perpetually rejecting and altering?
+
+Which is also true of war (Socrates replied); cities are perpetually undertaking war and then making peace again.
+
+Most true (he answered).
+
+Soc. If so, what is the difference between depreciating obedience to law because laws will be repealed, and depreciating good discipline in war because peace will one day be made? But perhaps you object to enthusiasm displayed in defence of one's home and fatherland in war?
+
+No, indeed I do not! I heartily approve of it (he answered).
+
+Soc. Then have you laid to heart the lesson taught by Lycurgus to the Lacedaemonians, and do you understand that if he succeeded in giving Sparta a distinction above other states, it was only by instilling into her, beyond all else, a spirit of obedience to the laws? And among magistrates and rulers in the different states, you would scarcely refuse the palm of superiority to those who best contribute to make their fellow-citizens obedient to the laws? And you would admit that any particular state in which obedience to the laws is the paramount distinction of the citizens flourishes most in peace time, and in time of war is irresistible? But, indeed, of all the blessings which a state may enjoy, none stands higher than the blessing of unanimity. "Concord among citizens"—that is the constant theme of exhortation emphasised by the councils of elders and by the choice spirits of the community; at all times and everywhere through the length and breadth of all Hellas it is an established law that the citizens be bound together by an oath of concord; everywhere they do actually swear this oath; not of course as implying that citizens shall all vote for the same choruses, or give their plaudits to the same flute-players, or choose the same poets, or limit themselves to the same pleasures, but simply that they shall pay obedience to the laws, since in the end that state will prove most powerful and most prosperous in which the citizens abide by these; but without concord neither can a state be well administered nor a household well organised.
+
+And if we turn to private life, what better protection can a man have than obedience to the laws? This shall be his safeguard against penalties, his guarantee of honours at the hands of the community; it shall be a clue to thread his way through the mazes of the law courts unbewildered, secure against defeat, assured of victory. It is to him, the law-loving citizen, that men will turn in confidence when seeking a guardian of the most sacred deposits, be it of money or be it their sons or daughters. He, in the eyes of the state collectively, is trustworthy—he and no other; who alone may be depended on to render to all alike their dues—to parents and kinsmen and servants, to friends and fellow-citizens and foreigners. This is he whom the enemy will soonest trust to arrange an armistice, or a truce, or a treaty of peace. They would like to become the allies of this man, and to fight on his side. This is he to whom the allies of his country will most confidently entrust the command of their forces, or of a garrison, or their states themselves. This, again, is he who may be counted on to recompense kindness with gratitude, and who, therefore, is more sure of kindly treatment than another whose sense of gratitude is fuller. The most desirable among friends, the enemy of all others to be avoided, clearly he is not the person whom a foreign state would choose to go to war with; encompassed by a host of friends and exempt from foes, his very character has a charm to compel friendship and alliance, and before him hatred and hostility melt away.
+
+And now, Hippias, I have done my part; that is my proof and demonstration that the "lawful" and "law-observant" are synonymous with the "upright" and the "just"; do you, if you hold a contrary view, instruct us.
+
+Then Hippias: Nay, upon my soul, Socrates, I am not aware of holding any contrary opinion to what you have uttered on the theme of justice.
+
+Soc. But now, are you aware, Hippias, of certain unwritten laws?
+
+Yes (he answered), those held in every part of the world, and in the same sense.
+
+Can you then assert (asked Socrates) of these unwritten laws that men made them?
+
+Nay, how (he answered) should that be, for how could they all have come together from the ends of the earth? and even if they had so done, men are not all of one speech?
+
+Soc. Whom then do you believe to have been the makers of these laws.
+
+Hipp. For my part, I think that the gods must have made these laws for men, and I take it as proof that first and foremost it is a law and custom everywhere to worship and reverence the gods.
+
+Soc. And, I presume, to honour parents is also customary everywhere?
+
+Yes, that too (he answered).
+
+Soc. And, I presume, also the prohibition of intermarriage between parents and children?
+
+Hipp. No; at that point I stop, Socrates. That does not seem to me to be a law of God.
+
+Now, why? (he asked).
+
+Because I perceive it is not infrequently transgressed (he answered).
+
+Soc. Well, but there are a good many other things which people do contrary to law; only the penalty, I take it, affixed to the transgression of the divine code is certain; there is no escape for the offender after the manner in which a man may transgress the laws of man with impunity, slipping through the fingers of justice by stealth, or avoiding it by violence.
+
+Hipp. And what is the inevitable penalty paid by those who, being related as parents and children, intermingle in marriage?
+
+Soc. The greatest of all penalties; for what worse calamity can human beings suffer in the production of offspring than to misbeget?
+
+Hipp. But how or why should they breed them ill where nothing hinders them, being of a good stock themselves and producing from stock as good?
+
+Soc. Because, forsooth, in order to produce good children, it is not simply necessary that the parents should be good and of a good stock, but that both should be equally in the prime and vigour of their bodies. Do you suppose that the seed of those who are at their prime is like theirs who either have not yet reached their prime, or whose prime has passed?
+
+Hipp. No, it is reasonable to expect that the seed will differ.
+
+Soc. And for the better—which?
+
+Hipp. Theirs clearly who are at their prime.
+
+Soc. It would seem that the seed of those who are not yet in their prime or have passed their prime is not good?
+
+Hipp. It seems most improbable it should be.
+
+Soc. Then the right way to produce children is not that way?
+
+Hipp. No, that is not the right way.
+
+Soc. Then children who are so produced are produced not as they ought to be?
+
+Hipp. So it appears to me.
+
+What offspring then (he asked) will be ill produced, ill begotten, and ill born, if not these?
+
+I subscribe to that opinion also (replied Hippias).
+
+Soc. Well, it is a custom universally respected, is it not, to return good for good, and kindness with kindness?
+
+Hipp. Yes, a custom, but one which again is apt to be transgressed.
+
+Soc. Then he that so transgresses it pays penalty in finding himself isolated; bereft of friends who are good, and driven to seek after those who love him not. Or is it not so that he who does me kindness in my intercourse with him is my good friend, but if I requite not this kindness to my benefactor, I am hated by him for my ingratitude, and yet I must needs pursue after him and cling to him because of the great gain to me of his society?
+
+Hipp. Yes, Socrates. In all these cases, I admit, there is an implication of divine authority; that a law should in itself be loaded with the penalty of its transgression does suggest to my mind a higher than human type of legislator.
+
+Soc. And in your opinion, Hippias, is the legislation of the gods just and righteous, or the reverse of what is just and righteous?
+
+Hipp. Not the reverse of what is just and righteous, Socrates, God forbid! for scarcely could any other legislate aright, of not God himself.
+
+Soc. It would seem then, Hippias, the gods themselves are well pleased that "the lawful" and "the just" should be synonymous?
+
+By such language and by such conduct, through example and precept alike, he helped to make those who approached him more upright and more just.
+
+## V
+
+And now I propose to show in what way he made those who were with him more vigorous in action. In the first place, as befitted one whose creed was that a basis of self-command is indispensable to any noble performance, he manifested himself to his companions as one who had pre-eminently disciplined himself; and in the next place by conversation and discussion he encouraged them to a like self-restraint beyond all others. Thus it was that he continued ever mindful himself, and was continually reminding all whom he encountered, of matters conducive to virtue; as the following discussion with Euthydemus, which has come to my knowledge, will serve to illustrate—the topic of the discussion being self-command.
+
+Tell me, Euthydemus (he began), do you believe freedom to be a noble and magnificent acquisition, whether for a man or for a state?
+
+I cannot conceive a nobler or more magnificent (he answered).
+
+Soc. Then do you believe him to be a free man who is ruled by the pleasures of the body, and thereby cannot perform what is best?
+
+Certainly not (he answered).
+
+Soc. No! for possibly to perform what is best appears to you to savour of freedom? And, again, to have some one over you who will prevent you doing the like seems a loss of freedom?
+
+Most decidedly (he answered).
+
+Soc. It would seem you are decidedly of opinion that the incontinent are the reverse of free?
+
+Euth. Upon my word, I much suspect so.
+
+Soc. And does it appear to you that the incontinent man is merely hindered from doing what is noblest, or that further he is impelled to do what is most shameful?
+
+Euth. I think he is as much driven to the one as he is hindered from the other.
+
+Soc. And what sort of lords and masters are those, think you, who at once put a stop to what is best and enforce what is worst?
+
+Euth. Goodness knows, they must be the very worst of masters.
+
+Soc. And what sort of slavery do you take to be the worst?
+
+I should say (he answered) slavery to the worst masters.
+
+It would seem then (pursued Socrates) that the incontinent man is bound over to the worst sort of slavery, would it not?
+
+So it appears to be (the other answered).
+
+Soc. And does it not appear to you that this same beldame incontinence shuts out wisdom, which is the best of all things, from mankind, and plunges them into the opposite? Does it not appear to you that she hinders men from attending to things which will be of use and benefit, and from learning to understand them; that she does so by dragging them away to things which are pleasant; and often though they are well aware of the good and of the evil, she amazes and confounds their wits and makes them choose the worse in place of the better?
+
+Yes, so it comes to pass (he answered).
+
+Soc. And soundness of soul, the spirit of temperate modesty? Who has less claim to this than the incontinent man? The works of the temperate spirit and the works of incontinency are, I take it, diametrically opposed?
+
+That too, I admit (he answered).
+
+Soc. If this then be so concerning these virtues, what with regard to carefulness and devotion to all that ought to occupy us? Can anything more seriously militate against these than this same incontinence?
+
+Nothing that I can think of (he replied).
+
+Soc. And can worse befall a man, think you? Can he be subjected to a more baleful influence than that which induces him to choose what is hurtful in place of what is helpful; which cajoles him to devote himself to the evil and to neglect the good; which forces him, will he nill he, to do what every man in his sober senses would shrink from and avoid?
+
+I can imagine nothing worse (he replied).
+
+Soc. Self-control, it is reasonable to suppose, will be the cause of opposite effects upon mankind to those of its own opposite, the want of self-control?
+
+Euth. It is to be supposed so.
+
+Soc. And this, which is the source of opposite effects to the very worst, will be the very best of things?
+
+Euth. That is the natural inference.
+
+Soc. It looks, does it not, Euthydemus, as if self-control were the best thing a man could have?
+
+It does indeed, Socrates (he answered).
+
+Soc. But now, Euthydemus, has it ever occurred to you to note one fact?
+
+What fact? (he asked).
+
+Soc. That, after all, incontinency is powerless to bring us to that realm of sweetness which some look upon as her peculiar province; it is not incontinency but self-control alone which has the passport to highest pleasures.
+
+In what way? (he asked). How so?
+
+Why, this way (Socrates answered): since incontinency will not suffer us to resist hunger and thirst, or to hold out against sexual appetite, or want of sleep (which abstinences are the only channels to true pleasure in eating and drinking, to the joys of love, to sweet repose and blissful slumber won by those who will patiently abide and endure till each particular happiness is at the flood)—it comes to this: by incontinency we are cut off from the full fruition of the more obvious and constantly recurring pleasures. To self-control, which alone enables us to endure the pains aforesaid, alone belongs the power to give us any pleasure worth remembering in these common cases.
+
+You speak the words of truth (he answered).
+
+Soc. Furthermore, if there be any joy in learning aught "beautiful and good," or in patient application to such rules as may enable a man to manage his body aright, or to administer his household well, or to prove himself useful to his friends and to the state, or to dominate his enemies—which things are the sources not only of advantage but of deepest satisfaction—to the continent and self-controlled it is given to reap the fruits of them in their performance. It is the incontinent who have neither part nor lot in any one of them. Since we must be right in asserting that he is least concerned with such things who has least ability to do them, being tied down to take an interest in the pleasure which is nearest to hand.
+
+Euthydemus replied: Socrates, you would say, it seems to me, that a man who is mastered by the pleasures of the body has no concern at all with virtue.
+
+And what is the distinction, Euthydemus (he asked), between a man devoid of self-control and the dullest of brute beasts? A man who foregoes all height of aim, who gives up searching for the best and strives only to gratify his sense of pleasure, is he better than the silliest of cattle? ... But to the self-controlled alone is it given to discover the hid treasures. These, by word and by deed, they will pick out and make selection of them according to their kinds, choosing deliberately the good and holding aloof from the evil. Thus (he added) it is that a man reaches the zenith, as it were, of goodness and happiness, thus it is that he becomes most capable of reasoning and discussion. The very name discussion (dialegesthai) is got from people coming together and deliberating in common by picking out and selecting things (dialegein) according to their kinds. A man then is bound to prepare himself as much as possible for this business, and to pursue it beyond all else with earnest resolution; for this is the right road to excellence, this will make a man fittest to lead his fellows and be a master in debate.
+
+## VI
+
+At this point I will endeavour to explain in what way Socrates fostered this greater "dialectic" capacity among his intimates. He held firmly to the opinion that if a man knew what each reality was, he would be able to explain this knowledge to others; but, failing the possession of that knowledge, it did not surprise him that men should stumble themselves and cause others to stumble also. It was for this reason that he never ceased inquiring with those who were with him into the true nature of things that are. It would be a long business certainly to go through in detail all the definitions at which he arrived; I will therefore content myself with such examples as will serve to show his method of procedure. As a first instance I will take the question of piety. The mode of investigation may be fairly represented as follows.
+
+Tell me (said he), Euthydemus, what sort of thing you take piety to be?
+
+Something most fair and excellent, no doubt (the other answered).
+
+Soc. And can you tell me what sort of person the pious man is?
+
+I should say (he answered) he is a man who honours the gods.
+
+Soc. And is it allowable to honour the gods in any mode or fashion one likes?
+
+Euth. No; there are laws in accordance with which one must do that.
+
+Soc. Then he who knows these laws will know how he must honour the gods?
+
+I think so (he answered).
+
+Soc. And he who knows how he must honour the gods conceives that he ought not to do so except in the manner which accords with his knowledge? Is it not so?
+
+Euth. That is so.
+
+Soc. And does any man honour the gods otherwise than he thinks he ought?
+
+I think not (he answered).
+
+Soc. It comes to this then: he who knows what the law requires in reference to the gods will honour the gods in the lawful way?
+
+Euth. Certainly.
+
+Soc. But now, he who honours lawfully honours as he ought?
+
+Euth. I see no alternative.
+
+Soc. And he who honours as he ought is a pious man?
+
+Euth. Certainly.
+
+Soc. It would appear that he who knows what the law requires with respect to the gods will correctly be defined as a pious man, and that is our definition?
+
+So it appears to me, at any rate (he replied).
+
+Soc. But now, with regard to human beings; is it allowable to deal with men in any way one pleases?
+
+Euth. No; with regard to men also, he will be a law-observing man who knows what things are lawful as concerning men, in accordance with which our dealings with one another must be conducted.
+
+Soc. Then those who deal with one another in this way, deal with each other as they ought?
+
+Obviously (he answered).
+
+Soc. And they who deal with one another as they ought, deal well and nobly—is it not so?
+
+Certainly (he answered).
+
+Soc. And they who deal well and nobly by mankind are well-doers in respect of human affairs?
+
+That would seem to follow (he replied).
+
+Soc. I presume that those who obey the laws do what is just and right?
+
+Without a doubt, (he answered).
+
+Soc. And by things right and just you know what sort of things are meant?
+
+What the laws ordain (he answered).
+
+Soc. It would seem to follow that they who do what the laws ordain both do what is right and just and what they ought?
+
+Euth. I see no alternative.
+
+Soc. But then, he who does what is just and right is upright and just?
+
+I should say myself (he answered).
+
+Soc. And should you say that any one obeys the laws without knowing what the laws ordain?
+
+I should not (he answered).
+
+Soc. And do you suppose that any one who knows what things he ought to do supposes that he ought not to do them?
+
+No, I suppose not (he answered).
+
+Soc. And do you know of anybody doing other than what he feels bound to do?
+
+No, I do not (he answered).
+
+Soc. It would seem that he who knows what things are lawful as concerning men does the things that are just and right?
+
+Without a doubt (he answered).
+
+Soc. But then, he who does what is just and right is upright and just?
+
+Who else, if not? (he replied).
+
+Soc. It would seem, then, we shall have got to a right definition if we name as just and upright those who know the things which are lawful as concerning men?
+
+That is my opinion (he answered).
+
+Soc. And what shall we say that wisdom is? Tell me, does it seem to you that the wise are wise in what they know, or are there any who are wise in what they know not?
+
+Euth. Clearly they are wise in what they know; for how could a man have wisdom in that which he does not know?
+
+Soc. In fact, then, the wise are wise in knowledge?
+
+Euth. Why, in what else should a man be wise save only in knowledge?
+
+Soc. And is wisdom anything else than that by which a man is wise, think you?
+
+Euth. No; that, and that only, I think.
+
+Soc. It would seem to follow that knowledge and wisdom are the same?
+
+Euth. So it appears to me.
+
+Soc. May I ask, does it seem to you possible for a man to know all the things that are?
+
+Euth. No, indeed! not the hundredth part of them, I should say.
+
+Soc. Then it would seem that it is impossible for a man to be all-wise?
+
+Quite impossible (he answered).
+
+Soc. It would seem the wisdom of each is limited to his knowledge; each is wise only in what he knows?
+
+Euth. That is my opinion.
+
+Soc. Well! come now, Euthydemus, as concerning the good: ought we to search for the good in this way?
+
+What way? (he asked).
+
+Soc. Does it seem to you that the same thing is equally advantageous to all?
+
+No, I should say not (he answered).
+
+Soc. You would say that a thing which is beneficial to one is sometimes hurtful to another?
+
+Decidedly (he replied).
+
+Soc. And is there anything else good except that which is beneficial, should you say?
+
+Nothing else (he answered).
+
+Soc. It would seem to follow that the beneficial is good relatively to him to whom it is beneficial?
+
+That is how it appears to me (he answered).
+
+Soc. And the beautiful: can we speak of a thing as beautiful in any other way than relatively? or can you name any beautiful thing, body, vessel, or whatever it be, which you know of as universally beautiful?
+
+Euth. I confess I do not know of any such myself.
+
+Soc. I presume to turn a thing to its proper use is to apply it beautifully?
+
+Euth. Undoubtedly it is a beautiful appliance.
+
+Soc. And is this, that, and the other thing beautiful for aught else except that to which it may be beautifully applied?
+
+Euth. No single thing else.
+
+Soc. It would seem that the useful is beautiful relatively to that for which it is of use?
+
+So it appears to me (he answered).
+
+Soc. And what of courage, Euthydemus? I presume you rank courage among things beautiful? It is a noble quality?
+
+Nay, one of the most noble (he answered).
+
+Soc. It seems that you regard courage as useful to no mean end?
+
+Euth. Nay, rather the greatest of all ends, God knows.
+
+Soc. Possibly in face of terrors and dangers you would consider it an advantage to be ignorant of them?
+
+Certainly not (he answered).
+
+Soc. It seems that those who have no fear in face of dangers, simply because they do not know what they are, are not courageous?
+
+Most true (he answered); or, by the same showing, a large proportion of madmen and cowards would be courageous.
+
+Soc. Well, and what of those who are in dread of things which are not dreadful, are they—
+
+Euth. Courageous, Socrates?—still less so than the former, goodness knows.
+
+Soc. Possibly, then, you would deem those who are good in the face of terrors and dangers to be courageous, and those who are bad in the face of the same to be cowards?
+
+Certainly I should (he answered).
+
+Soc. And can you suppose any other people to be good in respect of such things except those who are able to cope with them and turn them to noble account?
+
+No; these and these alone (he answered).
+
+Soc. And those people who are of a kind to cope but badly with the same occurrences, it would seem, are bad?
+
+Who else, if not they? (he asked).
+
+Soc. May it be that both one and the other class do use these circumstances as they think they must and should?
+
+Why, how else should they deal with them? (he asked).
+
+Soc. Can it be said that those who are unable to cope well with them or to turn them to noble account know how they must and should deal with them?
+
+I presume not (he answered).
+
+Soc. It would seem to follow that those who have the knowledge how to behave are also those who have the power?
+
+Yes; these, and these alone (he said).
+
+Soc. Well, but now, what of those who have made no egregious blunder (in the matter); can it be they cope ill with the things and circumstances we are discussing?
+
+I think not (he answered).
+
+Soc. It would seem, conversely, that they who cope ill have made some egregious blunder?
+
+Euth. Probably; indeed, it would appear to follow.
+
+Soc. It would seem, then, that those who know how to cope with terrors and dangers well and nobly are courageous, and those who fail utterly of this are cowards?
+
+So I judge them to be (he answered).
+
+A kingdom and a tyranny were, he opined, both of them forms of government, but forms which differed from one another, in his belief; a kingdom was a government over willing men in accordance with civil law, whereas a tyranny implied the government over unwilling subjects not according to law, but so as to suit the whims and wishes of the ruler.
+
+There were, moreover, three forms of citizenship or polity; in the case where the magistrates were appointed from those who discharged the obligations prescribed by law, he held the polity to be an aristocracy (or rule of the best); where the title to office depended on rateable property, it was a plutocracy (or rule of wealth); and lastly, where all the citizens without distinction held the reins of office, that was a democracy (or rule of the people).
+
+Let me explain his method of reply where the disputant had no clear statement to make, but without attempt at proof chose to contend that such or such a person named by himself was wiser, or more of a statesman, or more courageous, and so forth, than some other person. Socrates had a way of bringing the whole discussion back to the underlying proposition, as thus:
+
+Soc. You state that so and so, whom you admire, is a better citizen that this other whom I admire?
+
+The Disputant. Yes; I repeat the assertion.
+
+Soc. But would it not have been better to inquire first what is the work or function of a good citizen?
+
+The Disputant. Let us do so.
+
+Soc. To begin, then, with the matter of expenditure: his superiority will be shown by his increasing the resources and lightening the expenditure of the state?
+
+Certainly (the disputant would answer).
+
+Soc. And in the event of war, by rendering his state superior to her antagonists?
+
+The Disputant. Clearly.
+
+Soc. Or on an embassy as a diplomatist, I presume, by securing friends in place of enemies?
+
+That I should imagine (replies the disputant).
+
+Soc. Well, and in parliamentary debate, by putting a stop to party strife and fostering civic concord?
+
+The Disputant. That is my opinion.
+
+By this method of bringing back the argument to its true starting-point, even the disputant himself would be affected and the truth become manifest to his mind.
+
+His own—that is, the Socratic—method of conducting a rational discussion was to proceed step by step from one point of general agreement to another: "Herein lay the real security of reasoning," he would say; and for this reason he was more successful in winning the common assent of his hearers than any one I ever knew. He had a saying that Homer had conferred on Odysseus the title of a safe, unerring orator, because he had the gift to lead the discussion from one commonly accepted opinion to another.
+
+## VII
+
+The frankness and simplicity with which Socrates endeavoured to declare his own opinions, in dealing with those who conversed with him, is, I think, conclusively proved by the above instances; at the same time, as I hope now to show, he was no less eager to cultivate a spirit of independence in others, which would enable them to stand alone in all transactions suited to their powers.
+
+Of all the men I have ever known, he was most anxious to ascertain in what any of those about him was really versed; and within the range of his own knowledge he showed the greatest zeal in teaching everything which it befits the true gentleman to know; or where he was deficient in knowledge himself, he would introduce his friends to those who knew. He did not fail to teach them also up to what point it was proper for an educated man to acquire empiric knowledge of any particular matter.
+
+To take geometry as an instance: Every one (he would say) ought to be taught geometry so far, at any rate, as to be able, if necessary, to take over or part with a piece of land, or to divide it up or assign a portion of it for cultivation, and in every case by geometric rule. That amount of geometry was so simple indeed, and easy to learn, that it only needed ordinary application of the mind to the method of mensuration, and the student could at once ascertain the size of the piece of land, and, with the satisfaction of knowing its measurement, depart in peace. But he was unable to approve of the pursuit of geometry up to the point at which it became a study of unintelligible diagrams. What the use of these might be, he failed, he said, to see; and yet he was not unversed in these recondite matters himself. These things, he would say, were enough to wear out a man's life, and to hinder him from many other more useful studies.
+
+Again, a certain practical knowledge of astronomy, a certain skill in the study of the stars, he strongly insisted on. Every one should know enough of the science to be able to discover the hour of the night or the season of the month or year, for the purposes of travel by land or sea—the march, the voyage, and the regulations of the watch; and in general, with regard to all matters connected with the night season, or with the month, or the year, it was well to have such reliable data to go upon as would serve to distinguish the various times and seasons. But these, again, were pieces of knowledge easily learnt from night sportsmen, pilots of vessels, and many others who make it their business to know such things. As to pushing the study of astronomy so far as to include a knowledge of the movements of bodies outside our own orbit, whether planets or stars of eccentric movement, or wearing oneself out endeavouring to discover their distances from the earth, their periods, and their causes, all this he strongly discountenanced; for he saw (he said) no advantage in these any more than in the former studies. And yet he was not unversed in the subtleties of astronomy any more than in those of geometry; only these, again, he insisted, were sufficient to wear out a man's lifetime, and to keep him away from many more useful pursuits.
+
+And to speak generally, in regard of things celestial he set his face against attempts to excogitate the machinery by which the divine power formed its several operations. Not only were these matters beyond man's faculties to discover, as he believed, but the attempt to search out what the gods had not chosen to reveal could hardly (he supposed) be well pleasing in their sight. Indeed, the man who tortured his brains about such subjects stood a fair chance of losing his wits entirely, just as Anaxagoras, the headiest speculator of them all, in his attempt to explain the divine mechanism, had somewhat lost his head. Anaxagoras took on himself to assert that sun and fire are identical, ignoring the fact that human beings can easily look at fire, but to gaze steadily into the face of the sun is given to no man; or that under the influence of his rays the colour of the skin changes, but under the rays of fire not. He forgot that no plant or vegetation springs from earth's bosom with healthy growth without the help of sunlight, whilst the influence of fire is to parch up everything, and to destroy life; and when he came to speak of the sun as being a "red-hot stone" he ignored another fact, that a stone in fire neither lights up nor lasts, whereas the sun-god abides for ever with intensist brilliancy undimmed.
+
+Socrates inculcated the study of reasoning processes, but in these, equally with the rest, he bade the student beware of vain and idle over-occupation. Up to the limit set by utility, he was ready to join in any investigation, and to follow out an argument with those who were with him; but there he stopped.
+
+He particularly urged those who were with him to pay the utmost attention to health. They would learn all it was possible to learn from adepts, and not only so, but each one individually should take pains to discover, by a lifelong observation of his own case, what particular regimen, what meat or drink, or what kind of work, best suited him; these he should turn to account with a view to leading the healthiest possible life. It would be no easy matter for any one who would follow this advice, and study his own idiosyncrasy, to find a doctor to improve either on the diagnosis or the treatment requisite.
+
+Where any one came seeking for help which no human wisdom could supply, he would counsel him to give heed to "divination." He who has the secret of the means whereby the gods give signs to men touching their affairs can never surely find himself bereft of heavenly guidance.
+
+## VIII
+
+Now if any one should be disposed to set the statement of Socrates touching the divinity which warned him what he ought to do or not to do, against the fact that he was sentenced to death by the board of judges, and argue that thereby Socrates stood convicted of lying and delusion in respect of this "divinity" of his, I would have him to note in the first place that, at the date of his trial, Socrates was already so far advanced in years that had he not died then his life would have reached its natural term soon afterwards; and secondly, as matters went, he escaped life's bitterest load in escaping those years which bring a diminution of intellectual force to all—instead of which he was called upon to exhibit the full robustness of his soul and acquire glory in addition, partly by the style of his defence—felicitous alike in its truthfulness, its freedom, and its rectitude—and partly by the manner in which he bore the sentence of condemnation with infinite gentleness and manliness. Since no one within the memory of man, it is admitted, ever bowed his head to death more nobly. After the sentence he must needs live for thirty days, since it was the month of the "Delia," and the law does not suffer any man to die by the hand of the public executioner until the sacred embassy return from Delos. During the whole of that period (as his acquaintances without exception can testify) his life proceeded as usual. There was nothing to mark the difference between now and formerly in the even tenour of its courage; and it was a life which at all times had been a marvel of cheerfulness and calm content.
+
+And now I will mention further certain things which I have heard from Hermogenes, the son of Hipponicus, concerning him. He said that even after Meletus had drawn up the indictment, he himself used to hear Socrates conversing and discussing everything rather than the suit impending, and had ventured to suggest that he ought to be considering the line of his defence, to which, in the first instance, the master answered: "Do I not seem to you to have been practising that my whole life long?" And upon his asking "How?" added in explanation that he had passed his days in nothing else save in distinguishing between what is just and what is unjust (right and wrong), and in doing what is right and abstaining from what is wrong; "which conduct" (he added) "I hold to be the finest possible practice for my defence"; and when he (Hermogenes), returning to the point again, pleaded with Socrates: "Do you not see, Socrates, how commonly it happens that an Athenian jury, under the influence of argument, condemns innocent people to death and acquits real criminals?"—Socrates replied, "I assure you, Hermogenes, that each time I have essayed to give my thoughts to the defence which I am to make before the court, the divinity has opposed me." And when he (Hermogenes) exclaimed, "How strange!"—"Do you find it strange" (he continued), "that to the Godhead it should appear better for me to close my life at once? Do you not know that up to the present moment there is no man whom I can admit to have spent a better or happier life than mine. Since theirs I regard as the best of lives who study best to become as good as may be, and theirs the happiest who have the liveliest sense of growth in goodness; and such, hitherto, is the happy fortune which I perceive to have fallen to my lot. To such conclusion I have come, not only in accidental intercourse with others, but by a strict comparison drawn between myself and others, and in this faith I continue to this day; and not I only, but my friends continue in a like persuasion with regard to me, not for the lame reason that they are my friends and love me (or else would others have been in like case as regards their friends), but because they are persuaded that by being with me they will attain to their full height of goodness. But, if I am destined to prolong my days, maybe I shall be enforced to pay in full the penalties of old age—to see and hear less keenly, to fail in intellectual force, and to leave school, as it were, more of a dunce than when I came, less learned and more forgetful—in a word, I shall fall from my high estate, and daily grow worse in that wherein aforetime I excelled. But indeed, were it possible to remain unconscious of the change, the life left would scarcely be worth living; but given that there is a consciousness of the change, then must the existence left to live be found by comparison insipid, joyless, a death in life, devoid of life's charm. But indeed, if it is reserved for me to die unjustly, then on those who unjustly slay me lies the shame (since, given injustice is base, how can any unjust action whatsoever fail of baseness?) But for me what disgrace is it that others should fail of a just decision and right acts concerning me?... I see before me a long line of predecessors on this road, and I mark the reputation also among posterity which they have left. I note how it varies according as they did or suffered wrong, and for myself I know that I too, although I die to-day, shall obtain from mankind a consideration far different from that which will be accorded to those who put me to death. I know that undying witness will be borne me to this effect, that I never at any time did wrong to any man, or made him a worse man, but ever tried to make those better who were with me."
+
+Such are the words which he spoke in conversation with Hermogenes and the rest. But amongst those who knew Socrates and recognised what manner of man he was, all who make virtue and perfection their pursuit still to this day cease not to lament his loss with bitterest regret, as for one who helped them in the pursuit of virtue as none else could.
+
+To me, personally, he was what I have myself endeavoured to describe: so pious and devoutly religious that he would take no step apart from the will of heaven; so just and upright that he never did even a trifling injury to any living soul; so self-controlled, so temperate, that he never at any time chose the sweeter in place of the better; so sensible, and wise, and prudent that in distinguishing the better from the worse he never erred; nor had he need of any helper, but for the knowledge of these matters, his judgment was at once infallible and self-sufficing. Capable of reasonably setting forth and defining moral questions, he was also able to test others, and where they erred, to cross-examine and convict them, and so to impel and guide them in the path of virtue and noble manhood. With these characteristics, he seemed to be the very impersonation of human perfection and happiness.
+
+Such is our estimate. If the verdict fail to satisfy I would ask those who disagree with it to place the character of any other side by side with this delineation, and then pass sentence.
