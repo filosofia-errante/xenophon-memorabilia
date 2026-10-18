@@ -3,4 +3,7 @@ authors = ["Xenophon"]
 language = "en"
 src = "src"
 title = "Memorabilia"
+[output.html]
+theme = "src"
+
 
